@@ -18,3 +18,5 @@ VinFast nhận thức rằng việc gia nhập thị trường ô tô điện tr
 
 Tóm lại, thông báo của VinFast phản ánh cả những thành công và thách thức trong bối cảnh động đất không ngừng của thị trường ô tô điện. Mặc dù công ty chưa đạt được mục tiêu giao hàng cho năm 2023, sự gia tăng trong giao hàng trong quý cuối cùng và sự mở rộng vào thị trường Bắc Mỹ là những dấu hiệu tích cực. VinFast vẫn cam kết vượt qua những khó khăn, và kế hoạch chiến lược của họ cho mở rộng toàn cầu và đa dạng hóa cho thấy sự kiên cường trong ngành
  - Source: https://www.youtube.com/watch?v=0v1YfCjYLRs
+- Map
+<iframe src="https://www.google.com/maps/d/embed?mid=1wiZIrc_dr8k7kqoyzqkcGtPHe2NF3e8&ehbc=2E312F" width="640" height="480"></iframe>
