@@ -3,7 +3,7 @@
 Trong một thông báo gần đây, VinFast, nhà sản xuất ô tô điện nổi tiếng của Việt Nam, đã tiết lộ các con số sản xuất và giao hàng của mình trong quý 4 năm 2023 và cả năm đầy thách thức. Mặc dù phải đối mặt với những khó khăn, công ty vẫn lạc quan về kế hoạch mở rộng chiến lược của mình.
 
 VinFast thông báo rằng họ đã giao gần 35,000 xe trong suốt năm 2023, thấp hơn mục tiêu ban đầu là 40,000 chiếc. Công ty cho biết sự thiếu hụt này chủ yếu là do việc áp dụng ô tô điện chậm ở một số khu vực và sự không chắc chắn trong môi trường kinh tế. Mặc dù gặp những thách thức này, quý 4 năm 2023 chứng kiến sự tăng 35% trong số lượng xe giao so với quý trước, đạt tổng cộng 13,513 chiếc.
-
+![](https://cdnphoto.dantri.com.vn/gAMhHXEWAgujcKH-59wsruK7hFo=/thumb_w/1020/2023/10/26/2310vfap-news-nhan-dinh-ve-vinfastdocx-1698315292211.jpeg)
 Một cột mốc quan trọng trong thời kỳ này của VinFast là việc bắt đầu giao xe cho phiên bản xe thể thao đa dụng VF8 tại California. Điều này đánh dấu bước tiến trong hướng của công ty để củng cố sự hiện diện của mình trên thị trường Bắc Mỹ cạnh tranh.
 
 Chiến lược mở rộng toàn cầu của VinFast bao gồm kế hoạch thiết lập các cơ sở sản xuất và sản xuất pin ở Ấn Độ, cũng như mở rộng thị trường vào nhiều quốc gia khác ở Trung Đông, Bắc Mỹ, Châu Âu và Châu Á, bao gồm cả Indonesia. Công ty đặt ra mục tiêu đa dạng hóa phạm vi địa lý của mình, đảm bảo một hiện diện thị trường mạnh mẽ và linh hoạt hơn.
