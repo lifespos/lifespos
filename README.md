@@ -17,3 +17,4 @@ Kế hoạch phấn đấu của VinFast trong năm tới bao gồm các hợp t
 VinFast nhận thức rằng việc gia nhập thị trường ô tô điện trong thời điểm mà các đối thủ lớn như Tesla và các công ty Trung Quốc, bao gồm BYD, đang chiếm ưu thế, đã tăng áp lực lên hoạt động của họ. Mặc dù chưa đạt được lợi nhuận, VinFast vẫn kiên định cam kết của mình với thị trường ô tô điện và tiếp tục đầu tư vào các tiến bộ công nghệ và các sáng kiến mở rộng thị trường.
 
 Tóm lại, thông báo của VinFast phản ánh cả những thành công và thách thức trong bối cảnh động đất không ngừng của thị trường ô tô điện. Mặc dù công ty chưa đạt được mục tiêu giao hàng cho năm 2023, sự gia tăng trong giao hàng trong quý cuối cùng và sự mở rộng vào thị trường Bắc Mỹ là những dấu hiệu tích cực. VinFast vẫn cam kết vượt qua những khó khăn, và kế hoạch chiến lược của họ cho mở rộng toàn cầu và đa dạng hóa cho thấy sự kiên cường trong ngành
+Source: https://www.youtube.com/watch?v=0v1YfCjYLRs
